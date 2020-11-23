@@ -1,1 +1,0 @@
-# Anchor-of-Faith
